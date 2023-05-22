@@ -23,4 +23,3 @@
 
 https://github.com/EDiiiiii17/LogicSquare/assets/97487005/a4221d6f-d2e3-4c7f-99d0-31ca936753e2
 
-![video_2023-05-22_21-29-18](https://github.com/EDiiiiii17/LogicSquare/assets/97487005/5f798e2b-613b-439b-acd4-9afe8c69f9d3)
